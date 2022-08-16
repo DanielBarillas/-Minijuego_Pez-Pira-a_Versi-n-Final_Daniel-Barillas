@@ -1,1 +1,1 @@
-# -Minijuego_Pez-Pira-a_Versi-n-Final_Daniel-Barillas
+# -Minijuego_Pez-Piraña_Versión-Final_Daniel-Barillas
